@@ -1,0 +1,1 @@
+Kaju Katli is an Indian sweet that is usually prepared on festive occations.
